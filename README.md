@@ -1,0 +1,2 @@
+# 37b38ed4-21b7-4726-8f16-5717235f2719-hero-3
+Hero section variant 3 for 37b38ed4-21b7-4726-8f16-5717235f2719
